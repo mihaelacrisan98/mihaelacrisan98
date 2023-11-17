@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **crisanmihaela298@gmail.com**
 
-- ⚡ Fun fact **I think I am funny**
+- ⚡ Fun fact **I can make pixels prettier than my code.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
